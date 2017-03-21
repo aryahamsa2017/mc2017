@@ -1,0 +1,1 @@
+This is a place for storing all communications to developer i.e. Arya Gruha Private Limited
